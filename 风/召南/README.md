@@ -1,6 +1,6 @@
 # 召南
 
-《召（shào）南》命名多有分歧。或以为采集于召公奭的封邑，其地域偏南，故名。为[先秦](https://baike.baidu.com/item/先秦/919698?fromModule=lemma_inlink)时代召南地方[民歌](https://baike.baidu.com/item/民歌/92003?fromModule=lemma_inlink)，共十四篇。
+《召（shào）南》命名多有分歧。或以为采集于召公奭的封邑，其地域偏南，故名。为先秦时代召南地方民歌，共十四篇。
 
 | 目录                      |
 | ------------------------- |
